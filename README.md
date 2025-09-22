@@ -1,1 +1,1 @@
-There is no content in this file deliberatly
+There is no content in this file deliberately
